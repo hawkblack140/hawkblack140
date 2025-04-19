@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI
 - 🌱 I’m currently learning Machine Learning
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me at somewhere
+- 📫 How to reach me "hawkblack140@gmail.com
 - 😄 Pronouns: Soe..
 - ⚡ Fun fact: never say no to beer...
 
